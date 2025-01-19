@@ -12,3 +12,5 @@ She even mentioned she might be able to recover more data and possibly port mods
 
 I’ve played it a bit now, and let’s just say—it’s not normal. Unfortunately, if you want to know more, you’ll have to play it yourself.
 So, I present to you: Minecraft Classic.
+
+https://www.mediafire.com/file/cfuv5ho07pl34so/Minecraft+Classic.mrpack/file
